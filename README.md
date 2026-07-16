@@ -1,3 +1,5 @@
 # year_zero
-
-Office of the Digital Sovereign
+  
+  1. Office of the Digital Sovereign;
+  2. Great Democratic Council;
+  3. 
